@@ -1,0 +1,1 @@
+professor, estou mandando essa mensagem por aqui, pq o senhor não olha o BlackBoard, meu notebook deu tela azul e corrompeu todos os arquivos, eu perdi todo o meu projeto e não vou conseguir apresentar, peço que pegue leve na final :D
